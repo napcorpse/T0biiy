@@ -8,6 +8,9 @@
 ![Alt text](https://64.media.tumblr.com/2eabd0f7da74a7a6f64b7042dec1039f/0e5301293eb46033-50/s400x600/249abdefea26fc7ba29462001bb799f681c95ce3.png)
 ![Alt text](https://64.media.tumblr.com/9e50f461d567f2209de684c3cd57924d/0e5301293eb46033-fd/s400x600/5d56ea4f0735c2d826e33d25491b4810c6f4ccc4.png)<br>
 
+![Visitors](https://komarev.com/ghpvc/?username=napcorpse&label=Visitors&style=plastic&color=5d8736)
+
+
 <di align="left">
   
 ![Alt text](https://64.media.tumblr.com/c1c1de99d5d4a8fd0d71d3c4aaf5c68e/8f22f095c221bf13-c2/s400x600/fa60a0a2131528928e7a72389fe17a3583c93ab0.png)<br>
